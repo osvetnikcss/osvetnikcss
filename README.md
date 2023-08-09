@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @osvetnikcss
+- i know none of you can ddos me or find my house
+- here is my ip adress i have brutal internet so i know no one can ddos me
+- 62.4.34.66 here guys
+- i wish you all luck to ddos me :D
